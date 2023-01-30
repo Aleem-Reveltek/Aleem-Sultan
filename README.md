@@ -1,4 +1,4 @@
-### Hi there 👋, Aleem Sultan
+### Hi there 👋, Aleem Sultan 
 ![Image](https://github.com/Aleem-Reveltek/Aleem-Sultan/blob/main/1.png)
 
 I'm a Business Development Officer, I bring a wealth of experience in identifying and pursuing growth opportunities in various industries. I have a proven track record of success in developing and executing strategic plans, as well as establishing and maintaining positive relationships with key stakeholders. My expertise in market analysis and trend tracking, combined with my excellent communication and negotiation skills, make me a valuable asset to any organization. Outside of work, I enjoy keeping fit and staying up to date on industry developments. I look forward to connecting with like-minded individuals and contributing to exciting projects.
